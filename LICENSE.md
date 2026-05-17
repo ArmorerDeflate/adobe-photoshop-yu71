@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Photoshop para PC executor é o melhor Adobe Photoshop para PC executor com editor de arrastar e soltar e fluxo de texto. Seguro, confiável e otimizado para máximo
 
 
 
